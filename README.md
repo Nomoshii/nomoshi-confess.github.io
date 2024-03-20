@@ -1,0 +1,1 @@
+# nomoshi-confess.github.io
